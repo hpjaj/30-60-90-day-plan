@@ -1,0 +1,1 @@
+Created this content and website as part of my professional portfolio when pursuing the Director of Training position at Accenture.
